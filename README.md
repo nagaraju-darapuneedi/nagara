@@ -6,5 +6,4 @@ nktrk
 mkhnkjl
 pk
 sr
-pkkk 
 srrr
